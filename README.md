@@ -1,1 +1,2 @@
-Lindsay Hawkins 
+Lindsay Hawkins
+hawkilin@oregonstate.edu 
