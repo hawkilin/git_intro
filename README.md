@@ -1,2 +1,1 @@
-Lindsay Hawkins 
-6
+Lindsay Hawkins
